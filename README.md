@@ -1,0 +1,1 @@
+To run the program all you have to do is tart it once the program has started I made sure, to have instrictions in place to help you navigate and even end the program when finished using it thank you.
